@@ -1,2 +1,2 @@
 # BaseChads--Nft-on-base
-an Chad Nft deployed on base🔥
+a Chad Nft deployed on base🔥
